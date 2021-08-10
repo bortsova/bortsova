@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @bortsova
+- 📫 Reach me on LinkedIn: https://www.linkedin.com/in/bortsova/
